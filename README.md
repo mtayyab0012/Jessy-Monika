@@ -1,2 +1,2 @@
 # Jessy-Monika
-Jassy Avatar
+Jessy Avatar
